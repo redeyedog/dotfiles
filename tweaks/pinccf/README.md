@@ -1,0 +1,1 @@
+https://helpx.adobe.com/ru/creative-cloud/kb/remove-cc-files-folder-shortcut-navigation-panel.htmls
